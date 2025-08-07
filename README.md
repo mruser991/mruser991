@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @mruser991
 - 👀 I’m interested in videos games and other staffe too
 - 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... @ nicholasaaron413@gmail.com
 
 <!---
